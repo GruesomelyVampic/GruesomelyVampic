@@ -2,7 +2,7 @@
 
 ⌗ ₊` 🦇 ` ꒰**Streber !** . . . _But I'm known under some other names . ._ ꒱ 𓂃 ♡
 
-🍷．→﹐He / They / It / Ey ﹪ 6teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
+🍷．→﹐He / They / It / Ey ﹪ 7teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
 
  ╰╮ `🩸`．More to be added to this ! ⊹（⚰️）
 
@@ -11,6 +11,8 @@
 ![sdbypa](https://github.com/user-attachments/assets/4baa0c1b-ddc3-4c74-be98-96b6c0f121bb)
 
 ![tumblr_6847b143ed01da8160388af1cd81d923_29d3367f_100](https://github.com/user-attachments/assets/23ff6756-aebd-4451-af0e-7c4151dd27ff) ![tumblr_676bdeeeeb25c938dbf33131aab354cd_02c2a264_100](https://github.com/user-attachments/assets/eca887ee-a4b4-4ffb-bcb6-5cc1bfc2584f) ![tumblr_e9c1dee4a92546949d05cd64281f78fb_0d48127e_100](https://github.com/user-attachments/assets/76f2602a-545e-4aa8-b2d8-2b9f4cdb377e)
+
+![a53](https://github.com/user-attachments/assets/4104d5f2-44c6-410a-87c5-e182646c34e3)  ![a82](https://github.com/user-attachments/assets/540af843-1f91-49b0-a94f-5e8196dfe8c3) ![b2](https://github.com/user-attachments/assets/c1626d6c-755f-4099-a080-d776189d9c1a)
 
 ☆ ˚ ˖ ︶﹒
 
