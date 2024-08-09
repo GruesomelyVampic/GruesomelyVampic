@@ -2,7 +2,7 @@
 
 ⌗ ₊` 🦇 ` ꒰**Streber !** . . . _But I'm known under some other names . ._ ꒱ 𓂃 ♡
 
-🍷．→﹐He / They / It / Ey ﹪ 7teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
+🍷．→﹐He / They / It / Ey ﹪ **7**teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
 
  ╰╮ `🩸`．More to be added to this ! ⊹（⚰️）
 
