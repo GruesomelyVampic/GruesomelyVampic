@@ -9,6 +9,7 @@
    '⭒.  **LINKS** . . . ₊˚⊹
    
    —  [GRUESOMELY KINLISTED](https://gruesomelykinlisted.straw.page)   
+   —  [ARTFIGHT](https://gruesomelykinlisted.straw.page)   
 
 ̊ ˖ ৩ ⊹ ˚✦◞  ॱ ˖ ꒷ ॱ ꒦ `🌙` ꒷︶︶ ☆ ̟ ˚ ⊹ 🦇 ๑
 
