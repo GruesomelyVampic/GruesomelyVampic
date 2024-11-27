@@ -9,7 +9,8 @@
    '⭒.  **LINKS** . . . ₊˚⊹
    
    —  [GRUESOMELY KINLISTED](https://gruesomelykinlisted.straw.page)   
-   —  [ARTFIGHT](https://artfight.net/~Gruesomely_Vampic)   
+   —  [ARTFIGHT](https://artfight.net/~Gruesomely_Vampic)  
+   —  [POKEFARM Q](https://pfq.link/VampyGutz)
 
 ̊ ˖ ৩ ⊹ ˚✦◞  ॱ ˖ ꒷ ॱ ꒦ `🌙` ꒷︶︶ ☆ ̟ ˚ ⊹ 🦇 ๑
 
