@@ -12,7 +12,7 @@
    —  [ARTFIGHT](https://artfight.net/~Gruesomely_Vampic)  
    —  [POKEFARM Q](https://pfq.link/VampyGutz)  
    —  [COLOR MY TREE !](https://colormytree.me/2024/01JEBXS8KQN7RKQN6Z2D7W9KVN?page=0)
- 
+   —  [FEED THE GAGGLER. PLEASE.](https://tamanotchi.world/18201)  
 
 ̊ ˖ ৩ ⊹ ˚✦◞  ॱ ˖ ꒷ ॱ ꒦ `🌙` ꒷︶︶ ☆ ̟ ˚ ⊹ 🦇 ๑
 
