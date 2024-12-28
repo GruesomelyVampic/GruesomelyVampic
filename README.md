@@ -2,7 +2,7 @@
 
 ⌗ ₊` 🦇 ` ꒰**Streber !** . . . _But I'm known under some other names . ._ ꒱ 𓂃 ♡
 
-🍷．→﹐He / They / It / Ey ﹪ **7**teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
+🍷．→﹐He / Ey / It ﹪ **7**teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
 
  ╰╮ `🩸`．I am not Streber from SWS - I keep getting mixed up for them ! ⊹（⚰️）
  
@@ -21,6 +21,9 @@
 
 ![tumblr_6847b143ed01da8160388af1cd81d923_29d3367f_100](https://github.com/user-attachments/assets/23ff6756-aebd-4451-af0e-7c4151dd27ff) ![tumblr_676bdeeeeb25c938dbf33131aab354cd_02c2a264_100](https://github.com/user-attachments/assets/eca887ee-a4b4-4ffb-bcb6-5cc1bfc2584f) ![tumblr_e9c1dee4a92546949d05cd64281f78fb_0d48127e_100](https://github.com/user-attachments/assets/76f2602a-545e-4aa8-b2d8-2b9f4cdb377e)
 
+![dge07go-d15f277f-6a2c-48e4-a9da-7a3d48f1be18](https://github.com/user-attachments/assets/99e7da0b-770c-45cb-bb5a-55a6728c29c2) ![dge0byr-47a05a98-78a5-4d37-82ab-d17aecbbef2d](https://github.com/user-attachments/assets/ccd7e9f8-da88-4a1f-9125-98978ea94918) ![dge09ib-117a88ed-b4c6-4364-82e4-6825a674b47c](https://github.com/user-attachments/assets/8e704fac-031c-4bb8-89dd-ec9c61fe37d2)
+
+
 ![a53](https://github.com/user-attachments/assets/4104d5f2-44c6-410a-87c5-e182646c34e3)  ![a82](https://github.com/user-attachments/assets/540af843-1f91-49b0-a94f-5e8196dfe8c3) ![b2](https://github.com/user-attachments/assets/c1626d6c-755f-4099-a080-d776189d9c1a)
 
 ![tumblr_1fc045213a438735f9ca57be83f0f14a_0dd2af8e_540](https://github.com/user-attachments/assets/de4993ed-0252-4413-ac1e-0d2b482ef370)
@@ -29,8 +32,7 @@
  ![a41a4ddb](https://github.com/user-attachments/assets/1558bace-d860-4782-8e43-0c4739c735c6) ![n1](https://github.com/user-attachments/assets/6d757723-686e-4adb-8abe-968e7c2d2378)
  ![d0b963ab](https://github.com/user-attachments/assets/b3f16717-0bb8-4e64-939f-dab025f3313a)
  ![image87](https://github.com/user-attachments/assets/914ef9c9-6d04-4b93-9a31-eaf17bb7fade) ![k36](https://github.com/user-attachments/assets/34548070-5234-4f60-bb8c-21bee3376cae)
- ![9659a785](https://github.com/user-attachments/assets/d0012a29-1dc5-4928-b017-884362286dd1) ![b41](https://github.com/user-attachments/assets/fd7805f2-97ed-4556-a039-ecd65ad2ff3b) ![a69](https://github.com/user-attachments/assets/d8875728-e5c6-4d7d-845d-d581b4e6ecf0) ![d74](https://github.com/user-attachments/assets/b39bc268-6abf-4b09-8a0f-ba694ca7faa8) ![v26](https://github.com/user-attachments/assets/f91a60ac-8bb3-4307-a568-5746fff4a882) ![k11](https://github.com/user-attachments/assets/1b7c67b9-e1a5-4725-8911-2603a239929b) ![y46](https://github.com/user-attachments/assets/99b1f518-4d6a-47e3-995f-86474ba278bb) ![ezgif-1-c0a22027ae](https://github.com/user-attachments/assets/698f9975-3111-4179-b215-6cadbbbc95fc)
-
+ ![9659a785](https://github.com/user-attachments/assets/d0012a29-1dc5-4928-b017-884362286dd1) ![b41](https://github.com/user-attachments/assets/fd7805f2-97ed-4556-a039-ecd65ad2ff3b) ![a69](https://github.com/user-attachments/assets/d8875728-e5c6-4d7d-845d-d581b4e6ecf0) ![d74](https://github.com/user-attachments/assets/b39bc268-6abf-4b09-8a0f-ba694ca7faa8) ![v26](https://github.com/user-attachments/assets/f91a60ac-8bb3-4307-a568-5746fff4a882) ![k11](https://github.com/user-attachments/assets/1b7c67b9-e1a5-4725-8911-2603a239929b) ![y46](https://github.com/user-attachments/assets/99b1f518-4d6a-47e3-995f-86474ba278bb) ![ezgif-1-c0a22027ae](https://github.com/user-attachments/assets/698f9975-3111-4179-b215-6cadbbbc95fc) ![df07tup-5214a99b-dd71-49c3-8a5f-45417ec5f626](https://github.com/user-attachments/assets/16a48384-c0d5-47f1-bd03-b1e435a38b7e) ![dffyuik-24f1b651-2e24-4cce-9d15-99fd0943f7b1](https://github.com/user-attachments/assets/459353b9-39a7-43b7-8789-4a54e087b242) 
 
 
 ![tumblr_0dee983a1c92b42222fd3cdc8d0610b6_08b1bb7e_540](https://github.com/user-attachments/assets/42580fd7-8a71-4efb-9c15-234bf37f6b91)
