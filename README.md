@@ -7,8 +7,7 @@
  ╰╮ `🩸`．I am not Streber from SWS - I keep getting mixed up for them ! ⊹（⚰️）
  
    '⭒.  **LINKS** . . . ₊˚⊹
-   
-   —  [GRUESOMELY KINLISTED](https://gruesomelykinlisted.straw.page)   
+     
    —  [ARTFIGHT](https://artfight.net/~Gruesomely_Vampic)  
       —  [FEED THE GAGGLER . PLEASE .](https://tamanotchi.world/18201)  
    —  [POKEFARM Q](https://pfq.link/VampyGutz) 
