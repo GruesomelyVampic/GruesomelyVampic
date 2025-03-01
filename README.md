@@ -4,7 +4,7 @@
 
 🍷．→﹐He / Ey / It ﹪ **7**teen  ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
 
- ╰╮ `🩸`．I am not Streber from SWS - I keep getting mixed up for them ! ⊹（⚰️）
+ ╰╮ `🩸`．yabba gabba gabber drum ⊹（⚰️）
  
    '⭒.  **LINKS** . . . ₊˚⊹
      
