@@ -1,4 +1,4 @@
-![sm-spooky](https://github.com/user-attachments/assets/013350e8-5460-4cd7-a6c4-6996f30aab11)
+![Image](https://github.com/user-attachments/assets/2f8f5ee3-bbe2-4544-ba73-eb272a9676a5)
 
 ⌗ ₊` 🦇 ` ꒰**Streber !** . . . _But I'm known under some other names . ._ ꒱ 𓂃 ♡
 
