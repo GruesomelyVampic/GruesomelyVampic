@@ -2,9 +2,9 @@
 
 ⌗ ₊` 🦇 ` ꒰**Streber !** . . . _But I'm known under some other names . ._ ꒱ 𓂃 ♡
 
-🍷．→﹐He / Ey / It ﹪ ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
+🍷．→﹐He / Ey / It ﹪ 7Teen ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
 
- ╰╮ `🩸`．yabba gabba gabber drum ⊹（⚰️）
+ ╰╮ `🩸`．Mostly inactive on PT, womp womp. ⊹（⚰️）
  
    '⭒.  **LINKS** . . . ₊˚⊹
      
