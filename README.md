@@ -4,7 +4,7 @@
 
 🍷．→﹐He / Ey / It ﹪ 7Teen ![hpblu7](https://github.com/user-attachments/assets/550dd7c7-8c0e-4396-9144-983eb26f306d)
 
- ╰╮ `🩸`．Mostly inactive on PT, womp womp. ⊹（⚰️）
+ ╰╮ `🩸`．Defrosting from PT.. Welcome back Streber BIO lol. ⊹（⚰️）
  
    '⭒.  **LINKS** . . . ₊˚⊹
      
